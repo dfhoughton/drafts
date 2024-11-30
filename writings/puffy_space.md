@@ -10,7 +10,7 @@ lights, grayness, and monotony made paying attention almost impossible for me. I
 insomnia and depression.
 
 Anyway, this particular teacher was good and there was natural light. I enjoyed his lectures. The ideas he introduced me to
-remained, echoing in my head as a stumbled through to graduation. The two ideas that were dancing around each other were this:
+remained, echoing in my head as I stumbled through to graduation. The two ideas that were dancing around each other were this:
 the quantum wave function for a particular particle (or object or whatever) reaches out to the limits of the universe. If you
 square it, it's value at any point is a value between 0 and 1; it is the probability that the particle will be at that point
 when you look for it. If you sum these values over the entire universe it comes to 1 -- the particle is certain to be somewhere
