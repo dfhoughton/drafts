@@ -2,9 +2,9 @@
 
 Here is a story about me as a little boy.
 
-I lived in Annandale, Virginia, in Fairfax County. Up the street from me was Wakefield Forest Elementary School, where I was a student. I'm not sure just what year this was when the event I'm about to narrate happened, but it was before I was in the 5th grade, because I left Wakefield Forest for a different school, Pine Ridge, in the 5th grade. I think it was before the 4th grade as well, because in the 4th grade I was growing alienated from my friends at Wakefield Forest, and at the time in question I was not yet alienated. In fact, I did not yet have many of the friends I was to grow alienated from. It may have been when I was in the 2nd grade. In short, I was very young.
+I lived in Annandale, Virginia, in Fairfax County. Up the street from me was Wakefield Forest Elementary School, where I was a student. I'm not sure just what year it was when the event I'm about to narrate happened, but it was before I was in the 5th grade, because I left Wakefield Forest for a different school, Pine Ridge, in the 5th grade. I think it was before the 4th grade as well, because in the 4th grade I was growing alienated from my friends at Wakefield Forest, and at the time in question I was not yet alienated. In fact, I did not yet have many of the friends I was to grow alienated from. It may have been when I was in the 2nd grade. In short, I was very young.
 
-My best friend since kindergarten was John Brennan. He lived in Truro, a planned development organized around parks, trails, and a central recreation area with a swimming pool. The houses were all of a fixed number of plans, maybe just four or five. They all had similar, tasteful exteriors and landscaping: dark brown wood siding and brick. Central courtyards were a theme. Cul-de-sacs (culs-de-sac) were a theme. The streets curved and wound organically.
+My best friend since kindergarten was John B. He lived in Truro, a planned development organized around parks, trails, and a central recreation area with a swimming pool. The houses were all of a fixed number of plans, maybe just four or five. They all had similar, tasteful exteriors and landscaping: dark brown wood siding and brick. Central courtyards were a theme. Cul-de-sacs (culs-de-sac) were a theme. The streets curved and wound organically.
 
 I lived in a older neighborhood with a more rectilinear street plan. The houses all looked similar, but only because the people who built them all had similar, middle class taste. If some central planner planned it, it wasn't someone looking to create a theme other than continuing home sales.
 
@@ -24,7 +24,7 @@ I think we did pick up some of the trash. It was mostly soda cans.
 
 Anyway, the sense of the terror and injustice stuck with me, a tiny early episode of PTSD. 
 
-This particular memory is in my mind now because it echoes with the current moment. The world is being trashed. Our country is being trashed. I have decided I should do something about it. I am sure many people agree that something should be done, just as I'm sure everyone walking among the pine saplings wished there was less trash. But when I go out in public to say "Hey! Let's do something!" No one joins me. A few people metaphorically try to shove me into my own garbage bag.
+This particular memory is in my mind now because it echoes with the current moment. The world is being trashed. Our country is being trashed. I have decided I should do something about it. I am sure many people agree that something should be done, just as I'm sure everyone walking among the pine saplings wished there was less trash. But when I go out in public to say "Hey! Let's do something!" no one joins me. A few people metaphorically try to shove me into my own garbage bag.
 
 These events that I've planned I've announced with only short warning. I wasn't expecting much. I didn't have a great plan. I just wanted to be an example of standing up. Everyone is keeping their head down, trying to avoid notice, hoping someone else will fix things. But Keeping your head down makes the heads more visible of those standing up.
 
@@ -37,3 +37,4 @@ There have been two prominent suicides in my life. When I was a child, my uncle 
 If you see someone standing up for you, maybe think of this. Maybe they are just going on. And maybe give them a hand.
 
 [Footnote. I say above, "no one joins me." This is not true. The first time my daughter Cassie, my wife PJ, and my sister and brother-in-law, Cynthia and Rolf, joined me. The second time, PJ joined me. She will keep joining me. I meant when I broadcast the invitation to the world, on Facebook and Bluesky, there were no takers.]
+
